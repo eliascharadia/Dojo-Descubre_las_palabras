@@ -3,7 +3,7 @@
 - Chanampa Macarena - 1B
 - Nahuel Ciolfi - 1B
 - Juan Arrúa - 1B
-
+- Charadía Elías - 1B
 
 
 ## Dojo - Descubre la Palabra: 
